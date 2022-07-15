@@ -1,3 +1,3 @@
 #cursoconnect
 
-o curso demorou pra pagar a bolsa, mas ta daora
+o curso  ta daora
